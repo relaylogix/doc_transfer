@@ -1,7 +1,0 @@
-President Donald Trump
-Executive Orders
-2017 - 13765 to 13819
-2018 - 13820 to 13856
-2019 - 13857 to 13901
-2020 - 13902 to 13970
-2021 - 13971 to 13984
